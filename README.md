@@ -28,6 +28,6 @@ on youtube code with harry website devlopment and how we can run the website
 
 
 IF Any querry related to this website 
-then contact
-for cse210001012@iiti.ac.in         cse210001054@iiti.ac.in
+then contact 
+for    chhote singh cse210001012@iiti.ac.in        praveen dawar cse210001054@iiti.ac.in
 
